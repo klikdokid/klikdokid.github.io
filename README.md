@@ -23,11 +23,11 @@ Selain itu, ” Obat Aborsi Dosis 2 Bulan ” juga akan membersihkan rahim dari 
 * Penjelasan Obat Aborsi Usia 3 Bulan
 Pada usia kandungan ini, pasien akan merasakan sakit yang sedikit tidak berlebihan(sekitar 1 jam), namun hanya akan terjadi pada saat darah keluar yang merupakan pertanda menstruasi. Hal ini dikarenakan pada usia kandungan 3 bulan, janin sudah terbentuk sebesar kepalan tangan orang dewasa.
 * Cara kerja obat aborsi:
-Obat Aborsi Tuntas dosis 3 bulan secara umum sama dengan cara kerja “ Dosis Obat Aborsi 2 bulan ”, hanya bedanya selain mengisolasi janin juga menghancurkan janin dengan formula methotrexate yang dikandung didalamnya. Formula methotrexate ini sangat ampuh untuk menghancurkan janin menjadi serpihan-serpihan kecil akan sangat berguna pada saat dikeluarkan nanti. ” OBAT ABORSI dosis 3 bulan” juga membersihkan rahim dari sisa-sisa janin mungkin ada / tersisa sehingga nantinya tetap dapat mengandung dan melahirkan secara normal. Menstruasi akan terjadi maksimal 24 jam sejak OBAT ABORSI diminum.
+Obat Aborsi Tuntas dosis 3 bulan secara umum sama dengan cara kerja “ Dosis Obat Aborsi 2 bulan ”, hanya bedanya selain mengisolasi janin juga menghancurkan janin dengan formula methotrexate yang dikandung didalamnya.
+* Formula methotrexate ini sangat ampuh untuk menghancurkan janin menjadi serpihan-serpihan kecil akan sangat berguna pada saat dikeluarkan nanti. ” OBAT ABORSI dosis 3 bulan” juga membersihkan rahim dari sisa-sisa janin mungkin ada / tersisa sehingga nantinya tetap dapat mengandung dan melahirkan secara normal. Menstruasi akan terjadi maksimal 24 jam sejak OBAT ABORSI diminum.
 Untuk penjelasan pada usia kandungan 4 – 8 bulan, mengenai reaksi dan cara kerja obat aborsi silahkan hubungi kami.
 ## Harga Obat Aborsi Manjur Cytotec Asli
-Jangan terpengaruh dengan harga murah / termurah !!! Kami menjual obat aborsi yang benar-benar efektif dan telah dipakai di banyak negara karena kualitas dan keamanannya terjamin sehingga disetujui pemakaiannya oleh FDA di Amerika Serikat.
-Keberhasilan Anda adalah kebanggaan kami. 
+Jangan terpengaruh dengan harga murah / termurah !!! Kami menjual obat aborsi yang benar-benar efektif dan telah dipakai di banyak negara karena kualitas dan keamanannya terjamin sehingga disetujui pemakaiannya oleh FDA di Amerika Serikat.Keberhasilan Anda adalah kebanggaan kami. 
 
 Dimohon hati-hati terhadap iklan obat aborsi yang menjerumuskan!!! Banyak situs – situs obat aborsi atau iklan iklan lain yang mengaku sebagai dokter ternyata gadungan..!!!! Logikanya dokter tidak akan buka Klinik Aborsi Pribadi jika tidak dirumah sakit umum yang ada di kota kota besar. Percayakan pada kami maka anda tidak akan menyesal.
 
@@ -57,12 +57,14 @@ Seperti yang telah dijelaskan sebelumnya, salah satu tanda dari terjadinya kegug
 Keluar gumpalan darah dari vagina. Gumpalan darah yang keluar ketika keguguran termasuk embrio yang menyatu dengan darah-darah kental dari rahim. Embrio ini masih berbentuk gumpalan darah karena kehamilan masih di usia muda sehingga masih berbentuk janin utuh belum berbentuk manusia/bayi.
 Apa yang harus dilakukan setelah keguguran menggunakan Obat Cytotec?
 Berikut ini hal-hal yang harus dilakukan setelah mengalami keguguran:
-• 1.Gunakan pembalut, setelah keguguran biasanya wanita akan mengalami perdarahan pada area vagina.
-• 2.Konsumsi Pil Tuntas secara teratur dan sesuai dengan petunjuk aturan pakai dari dokter.
-• 3.Jangan berhubungan seks terlebih dahulu, Ya.
-• 4.Jangan langsung untuk merencanakan kehamilan lagi.
-• 5.Mintalah foto obat dengan menyertakan alamat Anda di sampingnya sebelum Anda mentransfer pembayarannya.
-• 6.Istirahat yang cukup dan menjaga pola makan.
+
+* 1.Gunakan pembalut, setelah keguguran biasanya wanita akan mengalami perdarahan pada area vagina.
+* 2.Konsumsi Pil Tuntas secara teratur dan sesuai dengan petunjuk aturan pakai dari dokter.
+* 3.Jangan berhubungan seks terlebih dahulu, Ya.
+* 4.Jangan langsung untuk merencanakan kehamilan lagi.
+* 5.Mintalah foto obat dengan menyertakan alamat Anda di sampingnya sebelum Anda mentransfer pembayarannya.
+* 6.Istirahat yang cukup dan menjaga pola makan.
+
 ### Apakah pendarahan bisa menyebabkan keguguran?
 Keguguran adalah kondisi meninggalnya janin di saat umur kehamilan masih di bawah 20 minggu. Keluarnya darah dari vagina adalah salah satu tanda-tanda terjadinya keguguran. Meski demikian terjadi perdarahan saat hamil bukan berarti Anda pasti mengalami keguguran.
 ### Kenapa janin tidak bisa digugurkan?
@@ -85,12 +87,12 @@ Seperti yang telah dijelaskan sebelumnya, salah satu tanda dari terjadinya kegug
 Keluar gumpalan darah dari vagina. Gumpalan darah yang keluar ketika keguguran termasuk embrio yang menyatu dengan darah-darah kental dari rahim. Embrio ini masih berbentuk gumpalan darah karena kehamilan masih di usia muda sehingga masih berbentuk janin utuh belum berbentuk manusia/bayi.
 ### Apa yang harus dilakukan setelah keguguran ?
 Berikut ini hal-hal yang harus dilakukan setelah mengalami keguguran:
-• 1.Gunakan pembalut, setelah keguguran biasanya wanita akan mengalami perdarahan pada area vagina.
-• 2.Konsumsi Pil Tuntas secara teratur dan sesuai dengan petunjuk aturan pakai dari dokter.
-• 3.Jangan berhubungan seks terlebih dahulu, Ya.
-• 4.Jangan langsung untuk merencanakan kehamilan lagi.
-• 5.Mintalah foto obat dengan menyertakan alamat Anda di sampingnya sebelum Anda mentransfer pembayarannya.
-• 6.Istirahat yang cukup dan menjaga pola makan.
+* 1.Gunakan pembalut, setelah keguguran biasanya wanita akan mengalami perdarahan pada area vagina.
+* 2.Konsumsi Pil Tuntas secara teratur dan sesuai dengan petunjuk aturan pakai dari dokter.
+* 3.Jangan berhubungan seks terlebih dahulu, Ya.
+* 4.Jangan langsung untuk merencanakan kehamilan lagi.
+* 5.Mintalah foto obat dengan menyertakan alamat Anda di sampingnya sebelum Anda mentransfer pembayarannya.
+* 6.Istirahat yang cukup dan menjaga pola makan.
 ### Apakah pendarahan bisa menyebabkan keguguran?
 Keguguran adalah kondisi meninggalnya janin di saat umur kehamilan masih di bawah 20 minggu. Keluarnya darah dari vagina adalah salah satu tanda-tanda terjadinya keguguran. Meski demikian terjadi perdarahan saat hamil bukan berarti Anda pasti mengalami keguguran.
 ### Kenapa janin tidak bisa digugurkan?
@@ -111,11 +113,11 @@ Berapa hari/minggu hormon kehamilan akan menghilang setelah keguguran?
 Setelah seorang wanita mengalami keguguran, hormon beta-HCG tidak langsung menjadi negatif. Diperlukan waktu sekitar kurang lebih 1 hingga 2 minggu untuk hormon ini berkurang atau bahkan menghilang hingga akhirnya tidak terdeteksi lagi melalui pemeriksaan testpack.
 ### Aturan Pakai Cytotec Misoprostol
 Aturan pemakaian obat aborsi Cytotec Misoprostol 200 mcg:
-• 1.Letakkan 4 butir obat cytotec di bawah lidah Anda sampai larut (tunggu hingga 30 menit).
-• 2.Setelah 3 jam, letakkan kembali 4 butir di bawah lidah (sama seperti yang pertama).
-• 3.Jika sudah 3 jam, lakukan kembali cara nomor 2.
-• 4.Selengkapnya bisa Anda lihat di anjuran pakai obat yang Anda pesan. Sangat penting dan untuk meyakinkan proses berjalan lancar telan obat cytotec untuk cara nomor 2 dan 3.
-• 5.Kami sangat menyarankan, sebaiknya Anda menggunakannya di bawah lidah bukan di antara gusi gigi maupun melalui vagina. Karena dengan cara ini aman jika Anda melakukan perawatan ke rumah sakit.
+* 1.Letakkan 4 butir obat cytotec di bawah lidah Anda sampai larut (tunggu hingga 30 menit).
+* 2.Setelah 3 jam, letakkan kembali 4 butir di bawah lidah (sama seperti yang pertama).
+* 3.Jika sudah 3 jam, lakukan kembali cara nomor 2.
+* 4.Selengkapnya bisa Anda lihat di anjuran pakai obat yang Anda pesan. Sangat penting dan untuk meyakinkan proses berjalan lancar telan obat cytotec untuk cara nomor 2 dan 3.
+* 5.Kami sangat menyarankan, sebaiknya Anda menggunakannya di bawah lidah bukan di antara gusi gigi maupun melalui vagina. Karena dengan cara ini aman jika Anda melakukan perawatan ke rumah sakit.
 Sebab obat ini sangat aman dan tidak terdeteksi jika Anda telah menggunakan Obat Cytotec ini. Jadi tidak akan ada dokter yang mengetahui Anda telah melakukan Aborsi. Sehingga Anda aman dari tuntutan tindakan aborsi sebagaimana yang kita ketahui negara kita Indonesia sangat melarang tindakan aborsi sendiri tanpa rujukan dari dokter. Ini bisa menjadi alasan jika ditanya bahwa Anda mengalami keguguran.
 OBAT ABORSI CYTOTEC OBAT PENGGUGUR KANDUNGAN
    

@@ -26,6 +26,7 @@ Pada usia kandungan ini, pasien akan merasakan sakit yang sedikit tidak berlebih
 Obat Aborsi Tuntas dosis 3 bulan secara umum sama dengan cara kerja “ Dosis Obat Aborsi 2 bulan ”, hanya bedanya selain mengisolasi janin juga menghancurkan janin dengan formula methotrexate yang dikandung didalamnya.
 * Formula methotrexate ini sangat ampuh untuk menghancurkan janin menjadi serpihan-serpihan kecil akan sangat berguna pada saat dikeluarkan nanti. ” OBAT ABORSI dosis 3 bulan” juga membersihkan rahim dari sisa-sisa janin mungkin ada / tersisa sehingga nantinya tetap dapat mengandung dan melahirkan secara normal. Menstruasi akan terjadi maksimal 24 jam sejak OBAT ABORSI diminum.
 Untuk penjelasan pada usia kandungan 4 – 8 bulan, mengenai reaksi dan cara kerja obat aborsi silahkan hubungi kami.
+
 ## Harga Obat Aborsi Manjur Cytotec Asli
 Jangan terpengaruh dengan harga murah / termurah !!! Kami menjual obat aborsi yang benar-benar efektif dan telah dipakai di banyak negara karena kualitas dan keamanannya terjamin sehingga disetujui pemakaiannya oleh FDA di Amerika Serikat.Keberhasilan Anda adalah kebanggaan kami. 
 
@@ -93,6 +94,7 @@ Berikut ini hal-hal yang harus dilakukan setelah mengalami keguguran:
 * 4.Jangan langsung untuk merencanakan kehamilan lagi.
 * 5.Mintalah foto obat dengan menyertakan alamat Anda di sampingnya sebelum Anda mentransfer pembayarannya.
 * 6.Istirahat yang cukup dan menjaga pola makan.
+
 ### Apakah pendarahan bisa menyebabkan keguguran?
 Keguguran adalah kondisi meninggalnya janin di saat umur kehamilan masih di bawah 20 minggu. Keluarnya darah dari vagina adalah salah satu tanda-tanda terjadinya keguguran. Meski demikian terjadi perdarahan saat hamil bukan berarti Anda pasti mengalami keguguran.
 ### Kenapa janin tidak bisa digugurkan?
